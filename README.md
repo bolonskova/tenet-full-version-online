@@ -3,7 +3,7 @@
 隨著covid-19問題的出現，電影院的電影放映已被推遲。 另一種方法是通過互聯網。 許多電影愛好者選擇互聯網觀看電影，其視覺效果清晰且無廣告。
 免費在線觀看[ 天能 ]（2020）流完整電影。 觀看麥路人2020整部電影免費在線流媒體與英語字幕可供下載麥路人2020 720p，1080p，brrip，dvdrip，高品質。
 
-play HD ▷▷ https://bit.ly/3hBIQEx
+ORIGINAL LINK WATCH ▷▷ https://bit.ly/3hBIQEx
 
 信条 Tenet (2020)
 Tenet导演: 克里斯托弗·诺兰
